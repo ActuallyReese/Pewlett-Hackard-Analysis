@@ -26,3 +26,10 @@
 ### Are there enough qualified, retirement-ready employees in the departments to mentor the next generation of Pewlett Hackard employees?
 
 #### Each retiring employee would need to mentor roughly 47 employees to fill in the missing roles. While this would technically be possible, I don't see this being plausible.
+
+***
+Contact:
+
+E-mail: reesewc@comcast.net
+
+LinkedIn: https://www.linkedin.com/in/reese-coulter-33b160140/
